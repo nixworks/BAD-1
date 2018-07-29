@@ -1,0 +1,2 @@
+# BAD
+Bitcoin Art Division
